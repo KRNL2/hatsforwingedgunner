@@ -1,0 +1,3 @@
+--https://www.roblox.com/catalog/5507132313/Dark-Shoulder-Wing-Right
+--https://www.roblox.com/catalog/6533517173/Lazgewehr-58
+--https://www.roblox.com/catalog/5205483683/Fiery-Fox-Shoulder-Pal
